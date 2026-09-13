@@ -1,0 +1,29 @@
+8.71 :0pm Z@m.da 11/18 trE:/ 考研数学880完成后的思路和做不完880怎么办 # 27考研 https://v.douyin.com/rctQkBb6N9E/ 复制此链接，打开Dou音搜索，直接观看视频！
+8.28 :2pm q@E.UY 01/08 CUY:/ 不小心考研英语做了留的那三年？小事小事。 作文不需要留# 27考研 https://v.douyin.com/AGnzyXP9KXs/ 复制此链接，打开Dou音搜索，直接观看视频！
+4.35 10/02 k@c.nQ Wzg:/ :2pm 考研政治的两个真心话 # 27考研 https://v.douyin.com/yt3d-GUXqF8/ 复制此链接，打开Dou音搜索，直接观看视频！
+3.02 f@O.Xm 08/16 :0pm cAt:/ 对待考研数学证明题的正确理解和备考思路 # 27考研 https://v.douyin.com/xI64PVM_EFM/ 复制此链接，打开Dou音搜索，直接观看视频！
+6.94 :5pm BTL:/ b@A.gb 09/11 考研英语阅读推进频率核心原则 # 考研英语 https://v.douyin.com/T8nSzOP2U6w/ 复制此链接，打开Dou音搜索，直接观看视频！
+8.41 12/06 O@K.Wm RkC:/ :7pm 27考研暑假规划秘密大调整 先完成再完美，别焦虑！# 27考研 https://v.douyin.com/AHqyiIBCc80/ 复制此链接，打开Dou音搜索，直接观看视频！
+0.07 hbN:/ 07/29 :5pm N@J.IV 考研数学七月总结 看向八月 # 27考研 https://v.douyin.com/qg8I9HUahho/ 复制此链接，打开Dou音搜索，直接观看视频！
+3.35 :9pm bnQ:/ 12/15 t@R.kp 考研英语小三门最佳备考思路 # 27考研 https://v.douyin.com/_oPYq8g_xXo/ 复制此链接，打开Dou音搜索，直接观看视频！
+8.28 j@C.Hv teb:/ :9pm 07/11 考研数学拼好卷和错题优先级调整说明 # 27考研 https://v.douyin.com/z0hMIfMdv18/ 复制此链接，打开Dou音搜索，直接观看视频！
+9.71 :5pm 12/29 I@i.Cu Hip:/ 考研数学A4大法2.0，最后一块拼图！ # 27考研 https://v.douyin.com/zE4K3qQU-qI/ 复制此链接，打开Dou音搜索，直接观看视频！
+9.41 :1pm 10/13 j@c.an tEu:/ 考研数学 真题卷问题大汇总 # 27考研 https://v.douyin.com/SXZkZStJqQ4/ 复制此链接，打开Dou音搜索，直接观看视频！
+5.82 :6pm u@f.Bg cnD:/ 09/11 27考研强化阶段问题回答，不要焦虑 # 27考研 https://v.douyin.com/oJqsmEEOIVQ/ 复制此链接，打开Dou音搜索，直接观看视频！
+7.92 05/12 :8pm lPK:/ j@P.Kw 考研数学各分数段大致任务量 # 27考研 https://v.douyin.com/pL_DSnH2dDY/ 复制此链接，打开Dou音搜索，直接观看视频！
+8.76 DuF:/ 09/03 H@v.fo :2pm 考研数学强化阶段习题册按我说的三步走，狠狠提升应试能力！ # 27考研 https://v.douyin.com/JZ62ywD7lqI/ 复制此链接，打开Dou音搜索，直接观看视频！
+1.07 Z@m.qe 10/26 :4pm Wzg:/ 27考研政治超夯超详细备考思路 # 27考研 https://v.douyin.com/Lyn1NfUooSA/ 复制此链接，打开Dou音搜索，直接观看视频！
+9.41 09/25 r@E.HI EuF:/ :2pm 考研数学线代跟张宇基础结束后的三条路线 # 27考研 https://v.douyin.com/dGQAz6L7H8E/ 复制此链接，打开Dou音搜索，直接观看视频！
+3.58 11/10 d@A.Gv :1pm oqr:/ 这期视频很大可能改变你对蓝开备考思路的走向 # 27考研 https://v.douyin.com/gdb89dbqO6I/ 复制此链接，打开Dou音搜索，直接观看视频！
+6.46 :9pm x@f.Ok DUY:/ 01/29 武忠祥/没咋了/周洋鑫高数强化结束后的规划（含线代版） 前段时间发的忘了说线代怎么做了# 27考研 https://v.douyin.com/808QJNYgSG4/ 复制此链接，打开Dou音搜索，直接观看视频！
+4.35 :8pm 02/05 mdn:/ k@P.XM 不要被耐听王束缚住，一道题都没法推，自学也不明白 为什么不去看课呢？# 27考研 https://v.douyin.com/Bz9BI65xt6s/ 复制此链接，打开Dou音搜索，直接观看视频！
+4.17 I@v.sr 08/29 :5pm Rxf:/ 二刷三十讲和三刷三十讲规划不一样 # 27考研 https://v.douyin.com/IUa6n-lJUcU/ 复制此链接，打开Dou音搜索，直接观看视频！
+6.99 j@p.dn :8pm goD:/ 06/01 考研英语留我说的三年到十二月再做！ 不要留近三年！近几年的题很有参考价值，建议二刷！！# 27考研 https://v.douyin.com/9MxRqNrNHR8/ 复制此链接，打开Dou音搜索，直接观看视频！
+2.38 :0pm 03/04 P@X.zg Wmq:/ 考研数学二刷三十讲后，高数部分的保姆级规划 # 27考研 https://v.douyin.com/8uvKFTCR_6E/ 复制此链接，打开Dou音搜索，直接观看视频！
+1.07 :3pm D@u.fO CHi:/ 12/03 考研数学概率论规划 最尊重高数和线代的一集# 27考研 https://v.douyin.com/Pu0eoLRvtQY/ 复制此链接，打开Dou音搜索，直接观看视频！
+4.30 05/11 :0pm UlC:/ G@V.Ym 考研英语如何精翻？也依旧大道至简 # 27考研 https://v.douyin.com/-YjVRiGmgUs/ 复制此链接，打开Dou音搜索，直接观看视频！
+0.00 NWz:/ F@U.Lj :7pm 02/17 考研数学880这本习题册最详细最强的使用教程 # 27考研 https://v.douyin.com/MFJoRVzhPp0/ 复制此链接，打开Dou音搜索，直接观看视频！
+5.69 lPX:/ z@g.oD 09/02 :8pm 考研数学对答案习惯比较重要，养成好习惯 如果注重连续做题状态的，我也建议做3-4道就去对答案～后续少不了大量的限时训练# 27考研 https://v.douyin.com/a1g81QeivBc/ 复制此链接，打开Dou音搜索，直接观看视频！
+7.43 :3pm UyT:/ 08/04 F@H.Iv 线代考不了满分，我来给你补 秘密线代规划# 27考研 https://v.douyin.com/b2qg_8GMaNg/ 复制此链接，打开Dou音搜索，直接观看视频！
+5.38 s@e.ba yTY:/ :6pm 01/31 考研数学Up的课什么时候去看？ 零食当正餐，别发育不良了，按需所取，利用好优秀的UP！# 27考研 https://v.douyin.com/5NO-xUSADZc/ 复制此链接，打开Dou音搜索，直接观看视频！
+3.56 03/23 hOX:/ :8pm a@A.go 考研数学秘密A4大法 基础不要做！不按我要求默写的那就不算A4，花费时间与我无关～高观点高纬度整理知识点，成为自己的老师# 27考研 https://v.douyin.com/X_x5SeY-xm8/ 复制此链接，打开Dou音搜索，直接观看视频！

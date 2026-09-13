@@ -1,0 +1,21 @@
+---
+description: Universal agent operating protocol and memory-bank lifecycle rules
+alwaysApply: true
+---
+
+# Agent Core Operating Rules
+
+This project uses a standardized Agent Workspace with a **Memory Bank** and **Three-Tier Architecture**:
+
+1. **Before Starting Any Work**:
+   - Check `.agent/memory-bank/activeContext.md` to restore recent context, active tasks, and handover notes.
+   - Respect architectural constraints defined in `.agent/memory-bank/systemPatterns.md`.
+
+2. **File Placement & Scratch Hygiene**:
+   - Never create random scratch, test, or dump files in the root directory.
+   - Use `.agent/scratch/` for all temporary experiments, probe scripts, and debug logs (ignored by git).
+
+3. **Task Completion & Archiving**:
+   - When completing significant work, update `.agent/memory-bank/progress.md` and `.agent/memory-bank/activeContext.md`.
+   - Archive completed plans from `.agent/tasks/` into `.agent/archive/` when finished.
+   - Clean up temporary files in `.agent/scratch/`.

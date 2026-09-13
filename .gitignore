@@ -1,0 +1,19 @@
+
+# Agent temporary scratch & transient debug files
+.agent/scratch/*
+!.agent/scratch/.gitkeep
+*.agent.tmp
+*.agent.log
+
+# Python cache & bytecode
+__pycache__/
+*.py[cod]
+*$py.class
+.venv/
+env/
+
+# OS files
+.DS_Store
+Thumbs.db
+
+
